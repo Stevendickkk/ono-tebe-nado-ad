@@ -1,1 +1,1 @@
-https://github/Stevendickkk/ono-tebe-nado-ad
+https://github.com/Stevendickkk/ono-tebe-nado-ad
